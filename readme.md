@@ -22,7 +22,7 @@
 
 2022年5月14日於香港
 
-目錄
+目錄（暫擬）
 
 1. 尼采和虛無主義 Friedrich Nietzsche and Nihilism
 2. 我爲何而生，爲何而死？Pourquoi je vis, pourquoi je meurs?
